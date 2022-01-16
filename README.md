@@ -1,2 +1,2 @@
-Zhillan Attarizal Rezyarifin
-18220008
+Nama: Zhillan Attarizal Rezyarifin
+NIM: 18220008
